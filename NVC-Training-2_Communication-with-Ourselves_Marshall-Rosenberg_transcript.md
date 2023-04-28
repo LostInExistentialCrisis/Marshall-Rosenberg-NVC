@@ -45,7 +45,7 @@ Actually, I wasn't there to teach them Nonviolent Communication. Nonviolent comm
 
 ### OJ Harvey - Relationship Between Language and Violence
 
-[OJ Harvey at the University of Colorado](https://archive.org/stream/conceptualsystem00harv/conceptualsystem00harv_djvu.txt), went around the world and took samples of literature from different cultures to see how often this verb "to be" was used in judging people's actions good, bad, right, wrong, etc. He correlated this with measures of violence - violence toward oneself, violence toward others, and he finds a high correlation. The more cultures think in terms of what people are and their actions, the more violence in those cultures. 
+[OJ Harvey at the University of Colorado](https://archive.org/stream/conceptualsystem00harv/conceptualsystem00harv_djvu.txt), went around the world and took samples of literature from different cultures to see how often this verb "to be" was used in judging people's actions good, bad, right, wrong, etc. He correlated this with measures of violence - violence toward oneself, violence toward others, and he finds a high correlation. The more cultures think in terms of what people are and their actions are, the more violence in those cultures. 
 
 #### We have four friends that can help alert us that we are thinking in a way that contributes to violence.
 
