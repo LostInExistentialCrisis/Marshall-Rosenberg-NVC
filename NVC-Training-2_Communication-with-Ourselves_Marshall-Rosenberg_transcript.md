@@ -186,7 +186,7 @@ Here are very typical statements of how people tell me they talk to themselves w
 (22:44)
 They have hundreds of these statements that run through them very quickly, whenever they make a mistake. All of these statements imply wrongness of a sort that deserves for them to suffer for what they've done. It's not hard to understand where this comes from. Because I asked the people, what are the first messages you could remember said to you by adults in your life when you did something the adults didn't like. It's very clear that they are simply repeating to themselves, the kinds of messages that they heard, when they were children who did things that the parents didn't like. *That's bad. That's stupid, what's wrong with you? You shouldn't do that.* 
 
-These are the first words we've heard from other people, when we haven't done what they wanted. Of course, then we learned how to do that to ourselves. 
+So when these are the first words we've heard from other people, when we haven't done what they wanted. Of course, then we learned how to do that to ourselves. 
 
 > Now we'll know we're doing that to ourselves when we feel **depressed**, **guilty** or **shame**. Because *those feelings are a result of our judging ourself in a way that implies there is something wrong with us for what we did*.
 
