@@ -225,7 +225,7 @@ Now, once people do understand the need that they were trying to meet by doing w
 
 #### That's how we show people how to apply Nonviolent Communication when they've made a mistake. 
 
-*First, be conscious of what you tell yourself*, as a result of making the mistake, and translate the self-judgment, that's likely to be there, into an unmet need, and **that's morning**. 
+*First, be conscious of what you tell yourself*, as a result of making the mistake, and translate the self-judgment, that's likely to be there, into an unmet need, and **that's mourning**. 
 
 Then empathize with what need you were *trying* to meet by the action that we're *calling* a mistake. **that's self forgiveness**. 
 
