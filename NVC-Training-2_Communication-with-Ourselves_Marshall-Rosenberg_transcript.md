@@ -211,7 +211,7 @@ Now, this takes some practice on the part of people because they very often have
 
 The quicker we can transform a thinking of blame into a thinking of unmet needs, the quicker we're going to be able to learn from our mistakes without losing self-respect. 
 
-**We call this kind of self empathy, empathizing with the need being expressed behind self blame, we call that morning.** Morning our limitations that we didn't meet a need by what we did. After we have helped the person to mourn, that is to see how they're blaming themselves for the mistake.  
+**We call this kind of self empathy, empathizing with the need being expressed behind self blame, we call that mourning.** Mourning our limitations that we didn't meet a need by what we did. After we have helped the person to mourn, that is to see how they're blaming themselves for the mistake.  
 
 (27:47)
 And after we get them to see that the blame is a tragic expression of an unmet need, and when they get in touch with the need to see how they feel, sadness or discouragement, but never depression, guilt or shame. 
